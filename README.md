@@ -20,7 +20,8 @@ in the stones alone
 sins in stones
 
 stones atone
-decided i will poke around downtime
+
+decided i will poke around downtown
 jesus salvation
 
 fucking shredded
@@ -35,8 +36,6 @@ x
 alone
 x
 kill us all
-
-
 
 say you mournin'
 and in the morning
