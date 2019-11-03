@@ -30,17 +30,27 @@ stuck in the *
 with hate
 
 get them stones
+x
 alone
+x
 kill us all
+
+
+
 say you mournin'
 and in the morning
 suck it on a frozen nest
 
+will kill us all
 kill us all alone
 rest
 
-caress'em awassse
 for blessens
+
+caress'em awassse
+are you ready so
+
+
 
 ```
 
