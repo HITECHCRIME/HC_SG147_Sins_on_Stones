@@ -15,7 +15,9 @@ Ghostemane X Scarlxrd Type Beat AK (Prod. NetuH)
 ## Lyrics
 
 ```
+sins in stones
 
+caress'em for blessens
 
 ```
 
