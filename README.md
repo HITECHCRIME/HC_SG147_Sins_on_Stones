@@ -15,9 +15,32 @@ Ghostemane X Scarlxrd Type Beat AK (Prod. NetuH)
 ## Lyrics
 
 ```
+in the stones alone
 sins in stones
 
-caress'em for blessens
+stones atone
+decided i will poke around downtime
+jesus salvation
+
+fucking shredded
+todeloo
+
+purpose to connect
+stuck in the *
+with hate
+
+get them stones
+alone
+kill us all
+say you mournin'
+and in the morning
+suck it on a frozen nest
+
+kill us all alone
+rest
+
+caress'em awassse
+for blessens
 
 ```
 
