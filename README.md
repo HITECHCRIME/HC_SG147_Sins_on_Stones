@@ -7,10 +7,11 @@
 ## Project Data
 
 Ghostemane X Scarlxrd Type Beat AK (Prod. NetuH)
+One-go freestyle (one track challenge).
 
 **Title:** Sins on Stones / **Featuring:** MOTHNODE
 
-**Production:** NetuH / **Lyrics:** 
+**Production:** NetuH / **Lyrics:** MOTHNODE
 
 ## Lyrics
 
