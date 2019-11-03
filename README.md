@@ -8,7 +8,7 @@
 
 Ghostemane X Scarlxrd Type Beat AK (Prod. NetuH)
 
-**Title:**  / **Featuring:** 
+**Title:** Sins on Stones / **Featuring:** 
 
 **Production:**  / **Lyrics:** 
 
